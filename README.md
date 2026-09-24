@@ -85,7 +85,7 @@
 
 它的优势不是“年付折扣最大”，而是第一次购买时暴露金额比较直观。
 
-[查看速网云 →](https://suwangyun.com/)
+[查看速网云 →](https://suwangyun.top/)
 
 ### Just My Socks：月付为主
 
